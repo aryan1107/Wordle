@@ -60,4 +60,4 @@ This policy is effective as of 2022-02-18
 
 Contact Us
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at kaashiorg@protonmail.com. 
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at kaashiorg[@]protonmail.com. 
